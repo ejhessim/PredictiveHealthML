@@ -11,7 +11,6 @@
 
 - ⚡ Fun fact **I'm passionate about finding the balance between groundbreaking technology and eco-friendly practices in healthcare.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
